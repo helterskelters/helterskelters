@@ -2,12 +2,11 @@
 ⠀⠀⠀**CATLOKI / GOLDSRC  ⠀  ...**   ⠀ *she they* <br>
 average ponytown system, ⠀ proud faker <br>
  narcissistic brain damaged schizofreak <3<br>
- more info in links section ~ <br>
+ more info in all my links ~ <br>
  <br>
  i support mspec monos & endogenics. not <br>
  here to argue so don't bother, i will explain <br>
- if you ask me nicely. before you ask: no, i'm<br>
- not endogenic just because i support them. <br>
+ if you ask me nicely. i love ymodem & the missus <br>
 <!---
 helterskelters/helterskelters is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
